@@ -1,1 +1,1 @@
-https://bharateshpatil123.github.io/fitness-World/
+https://bharateshpatil123.github.io/fitnessworld/
